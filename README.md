@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @!メAGTメ47🚀#0047
+- 📫 How to reach me https://discord.gg/HXQFSfZfws
